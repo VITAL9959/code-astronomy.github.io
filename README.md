@@ -51,4 +51,5 @@ The Moon has no atmosphere, which means there is no wind to erode the surface an
 
 Venus has a slow axis rotation which takes 243 Earth days to complete its day. The orbit of Venus around the Sun is 225 Earth days, making a year on Venus 18 days less than a day on Venus.
 *********************************************************************************************************************************************************************************
+
 so hope you learned something new and by the next time you visit here there will be something new and more interesting....
