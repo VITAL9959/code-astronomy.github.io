@@ -11,6 +11,7 @@ This page is designed for cosmo lovers😍😍😍.
 
 Now tOp 10 interesting facts about space🌌🪐🌑
 *********************************************************************************************************************************************************************************
+
 \1/.Space is completely silent.
 
 There is no atmosphere in space, which means that sound has no medium or way to travel to be heard. Astronauts use radios to stay in communication while in space, since radio waves can still be sent and received.
